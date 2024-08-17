@@ -12,6 +12,7 @@ My most listened were:
 + Drugs & Money by Chase Atlantic
 + Decode by Paramore
 + and Petals by Hole.
+
 I listened to a lot of Chase Atlantic. A lot of artists released good music this summer, which was really nice. I liked Billie's new album a lot.
 
 ## Learning experiences
